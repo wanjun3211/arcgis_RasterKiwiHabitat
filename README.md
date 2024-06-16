@@ -1,1 +1,2 @@
-[Uploading Layout landscape new.pdf…]()
+
+![Uploading Layout landscape.jpg…]()
