@@ -1,2 +1,1 @@
 
-![Uploading Layout landscape.jpg…]()
